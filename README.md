@@ -1,0 +1,2 @@
+# Abdul-Malik
+I'm a Professional Web Designer &amp; Developer.My name is Abdul Malik and I am a Font-End &amp; Back-End Developer ,    ✅ My Skill   ✅ HTML5, ✅ CSS3, ✅ CSS3 Animation, ✅ Bootstrap, ✅ JavaScript, ✅ JQuery, ✅ JQuery Animation, ✅ PHP and exquisite blend of experience in ✅ WordPress. ✅ PSD To HTML ✅ Responcive web site Design .   Effective support has been a priority in many of the projects I've worked on. I've had plenty of experience with developing sites for, ✅ Chrome, ✅ Firefox, and ✅Safari. More recently, I've been working on Convert ✅PSD's, ✅WordPress sites.
